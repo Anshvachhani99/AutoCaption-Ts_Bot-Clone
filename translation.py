@@ -50,7 +50,7 @@ I am currently working for a channel if you want to use me, Use my source code a
 
 ○ sᴏᴜʀᴄᴇ ᴄᴏᴅᴇ  : ✅ Private 😏
 
-○ ᴄʀᴇᴀᴛᴏʀ :  [ᴛʀᴀᴄᴋsᴛᴜᴅɪᴏ](https://t.me/joinchat/jmWk0IiAx8NiYTBl)
+○ ᴄʀᴇᴀᴛᴏʀ :  [Contect](https://t.me/joinchat/jmWk0IiAx8NiYTBl)
  
 __ᴘʟᴇᴀsᴇ ɴᴏᴛᴇ ɪ ᴀᴍ ɴᴏᴛ ᴀ ᴘʀᴏ ᴄᴏᴅᴇʀ ᴀɴᴅ ᴛʜɪs ɪs ᴍʏ ғɪʀsᴛ ᴛɪᴍᴇ ɪ ᴀᴍ ɢɪᴠɪɴɢ ᴀɴ ᴏᴘᴇɴ sᴏᴜʀᴄᴇ ᴄᴏᴅᴇ ᴏғ ʙᴏᴛ ғᴏʀ ᴇᴠᴇʀʏᴏɴᴇ ᴡʜɪᴄʜ ᴡᴀs ᴡʀɪᴛᴇʀ ɪɴ ᴍʏ ᴏᴡɴ ʜᴀɴᴅs, sᴏ ɪғ ᴀɴʏ ʙᴜɢs ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ sᴀʏ
 ɪᴛ ᴍᴀʏ ʙᴇ ɴᴏᴛ ᴛʜᴇ ʙᴇsᴛ ʙᴜᴛ ғᴏʀ ᴍᴇ ɪᴛ ɪs ᴛʜᴇ ʙᴇsᴛ 🥰
