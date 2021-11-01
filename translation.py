@@ -10,7 +10,7 @@ I can automatically add pre-setted caption to the files in channels
 
 I am currently working for a channel if you want to use me, Use my source code and Deploy me
 
-⚜️ Maintained By 👉 @{}
+⚜️ Maintained By 👉 [📞 Contact](https://t.me/joinchat/jmWk0IiAx8NiYTBl) 
 """    
 
       HELP_TEXT = """
